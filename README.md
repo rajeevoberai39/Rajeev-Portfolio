@@ -1,2 +1,0 @@
-# Rajeev-Portfolio
-Rajeev Oberai
